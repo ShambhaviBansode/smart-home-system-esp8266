@@ -61,5 +61,5 @@ home-automation-project/
 ## 👤 Author
 
 **Shambhavi Bansode**  
-[LinkedIn](https://linkedin.com/in/shambhavi-bansode) 
+[LinkedIn](https://www.linkedin.com/in/shambhavi-bansode-35bb77297?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app) 
 
